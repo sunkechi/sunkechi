@@ -27,3 +27,9 @@
 <p align="center">$\color{#7c3bbf}{\textsf{ 𝐼𝑡'𝑠 𝑜𝑛 𝑚𝑦 𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒 (𝑢𝑛𝑓𝑜𝑟𝑡𝑢𝑛𝑎𝑡𝑒𝑙𝑦 𝐼 𝑐𝑎𝑛𝑡'𝑡 𝑡𝑦𝑝𝑒 𝑖𝑡 ℎ𝑒𝑟𝑒 :𝑐)  }}$
   
 <p align="center"><img src="https://komarev.com/ghpvc/?username=sunkechi&color=8a7ba6&style=flat-square&abel=profile%20views">
+
+<p align="center">
+ <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=3qdgmtgces9wrpq2r6qcytgj9&redirect=true">
+    <img src="https://open.spotify.com/user/laleliomer?si=3c67021fdfcf4d38&cover_image=true&theme=natemoo-re&show_offline=true&background_color=322f2f&interchange=false&profanity=false&hide_remaster=false&bar_color=a06e78&bar_color_cover=false">
+  </a>
+</p>
