@@ -19,4 +19,4 @@
 <p align="center">$\color{#e64132}{\textsf{ 𝐼 𝑎𝑙𝑠𝑜 𝑙𝑖𝑘𝑒 𝑡𝑜 𝑑𝑟𝑎𝑤 𝑠𝑜 𝐼'𝑑 𝑏𝑒 𝑟𝑒𝑎𝑙𝑙𝑦 𝑔𝑙𝑎𝑑 𝑖𝑓 𝑦𝑜𝑢 𝑙𝑜𝑜𝑘𝑒𝑑 𝑎𝑡 𝑚𝑦 𝑎𝑟𝑡 𝑎𝑐𝑐𝑜𝑢𝑛𝑡 𝑜𝑛 𝑖𝑛𝑠𝑡𝑎 (𝑝𝑙𝑒𝑎𝑠𝑒 !!)  }}$ 
 <p align="center">$\color{#e64132}{\textsf{ 𝐼𝑡'𝑠 𝑜𝑛 𝑚𝑦 𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒 (𝑢𝑛𝑓𝑜𝑟𝑡𝑢𝑛𝑎𝑡𝑒𝑙𝑦 𝐼 𝑐𝑎𝑛𝑡'𝑡 𝑡𝑦𝑝𝑒 𝑖𝑡 ℎ𝑒𝑟𝑒 :𝑐)  }}$
   
-<p align="center"><img src="https://komarev.com/ghpvc/?username=sunnyvamp&color=8a7ba6&style=flat-square&label=profile views" />
+<p align="center"><img src="https://komarev.com/ghpvc/?username=sunkechi&color=8a7ba6&style=flat-square&label=profile views" />
