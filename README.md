@@ -30,6 +30,6 @@
 
 <p align="center">
  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=3qdgmtgces9wrpq2r6qcytgj9&redirect=true">
-    <img src="https://open.spotify.com/user/laleliomer?si=3c67021fdfcf4d38&cover_image=true&theme=natemoo-re&show_offline=true&background_color=322f2f&interchange=false&profanity=false&hide_remaster=false&bar_color=a06e78&bar_color_cover=false">
+    <img src="https://open.spotify.com/user/laleliomer?si=3509ef10955a4c77&cover_image=true&theme=natemoo-re&show_offline=true&background_color=322f2f&interchange=false&profanity=false&hide_remaster=false&bar_color=a06e78&bar_color_cover=false">
   </a>
 </p>
