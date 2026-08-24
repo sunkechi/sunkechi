@@ -1,4 +1,4 @@
-<p align="center"><img src="https://i.hizliresim.com/ozkawwja.png" alt="görsel_2026-08-25_005125345-removebg-preview (1).png">
+<p align="center"><img src="https://i.pinimg.com/originals/f7/14/4a/f7144ad0fffa69faf061b8784e5539c9.gif">
 <p align="center">$\color{#6724d8}{\textsf{ ⠀ ⠀  ⠀ ♱  ⠀ 𝔇𝔬 𝔫𝔬𝔱 𝔰𝔭𝔢𝔞𝔨 𝔱𝔬𝔬 𝔪𝔲𝔠𝔥.   ⠀♱  }}$
 <p align="center">$\color{#6724d8}{\textsf{ ⠀ ⠀ ⠀  ♱  ⠀ 𝔜𝔬𝔲 𝔪𝔦𝔤𝔥𝔱 𝔞𝔠𝔠𝔦𝔡𝔢𝔫𝔱𝔞𝔩𝔩𝔶 𝔯𝔢𝔳𝔢𝔞𝔩 𝔶𝔬𝔲𝔯 𝔣𝔢𝔞𝔯. ⠀ ⠀♱  }}$
 
@@ -22,8 +22,8 @@
 
 <p align="center"><img src="https://adriansblinkiecollection.neocities.org/stamps/g1.gif" width="200">
 
-<p align="center">$\color{#4271ca}{\textsf{ 𝗮𝗹𝘄𝗮𝘆𝘀 𝗖+𝗛 𝗮𝗻𝗱 𝘄𝟮𝗶 , 𝗼𝗳𝘁𝗲𝗻 𝗼𝗳𝗳𝘁𝗮𝗯 𝗮𝗻𝗱 𝗜 𝗱𝗼𝗻'𝘁 𝘂𝘀𝘂𝗮𝗹𝗹𝘆 𝘂𝘀𝗲 𝗱𝗻𝗶/𝗱𝗻𝗶𝘂𝗳 𝘀𝗶𝗻𝗰𝗲 𝗜 𝗹𝗼𝗴 𝗼𝗳𝗳 𝘄𝗵𝗲𝗻 𝗜'𝗺 𝗻𝗼𝘁 𝗳𝗲𝗲𝗹𝗶𝗻𝗴 𝘄𝗲𝗹𝗹 !  }}$ 
-<p align="center">$\color{#4271ca}{\textsf{ 𝐼 𝑎𝑙𝑠𝑜 𝑙𝑖𝑘𝑒 𝑡𝑜 𝑑𝑟𝑎𝑤 𝑠𝑜 𝐼'𝑑 𝑏𝑒 𝑟𝑒𝑎𝑙𝑙𝑦 𝑔𝑙𝑎𝑑 𝑖𝑓 𝑦𝑜𝑢 𝑙𝑜𝑜𝑘𝑒𝑑 𝑎𝑡 𝑚𝑦 𝑎𝑟𝑡 𝑎𝑐𝑐𝑜𝑢𝑛𝑡 𝑜𝑛 𝑖𝑛𝑠𝑡𝑎 (𝑝𝑙𝑒𝑎𝑠𝑒 !!)  }}$ 
-<p align="center">$\color{#4271ca}{\textsf{ 𝐼𝑡'𝑠 𝑜𝑛 𝑚𝑦 𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒 (𝑢𝑛𝑓𝑜𝑟𝑡𝑢𝑛𝑎𝑡𝑒𝑙𝑦 𝐼 𝑐𝑎𝑛𝑡'𝑡 𝑡𝑦𝑝𝑒 𝑖𝑡 ℎ𝑒𝑟𝑒 :𝑐)  }}$
+<p align="center">$\color{#7c3bbf}{\textsf{ 𝗮𝗹𝘄𝗮𝘆𝘀 𝗖+𝗛 𝗮𝗻𝗱 𝘄𝟮𝗶 , 𝗼𝗳𝘁𝗲𝗻 𝗼𝗳𝗳𝘁𝗮𝗯 𝗮𝗻𝗱 𝗜 𝗱𝗼𝗻'𝘁 𝘂𝘀𝘂𝗮𝗹𝗹𝘆 𝘂𝘀𝗲 𝗱𝗻𝗶/𝗱𝗻𝗶𝘂𝗳 𝘀𝗶𝗻𝗰𝗲 𝗜 𝗹𝗼𝗴 𝗼𝗳𝗳 𝘄𝗵𝗲𝗻 𝗜'𝗺 𝗻𝗼𝘁 𝗳𝗲𝗲𝗹𝗶𝗻𝗴 𝘄𝗲𝗹𝗹 !  }}$ 
+<p align="center">$\color{#7c3bbf}{\textsf{ 𝐼 𝑎𝑙𝑠𝑜 𝑙𝑖𝑘𝑒 𝑡𝑜 𝑑𝑟𝑎𝑤 𝑠𝑜 𝐼'𝑑 𝑏𝑒 𝑟𝑒𝑎𝑙𝑙𝑦 𝑔𝑙𝑎𝑑 𝑖𝑓 𝑦𝑜𝑢 𝑙𝑜𝑜𝑘𝑒𝑑 𝑎𝑡 𝑚𝑦 𝑎𝑟𝑡 𝑎𝑐𝑐𝑜𝑢𝑛𝑡 𝑜𝑛 𝑖𝑛𝑠𝑡𝑎 (𝑝𝑙𝑒𝑎𝑠𝑒 !!)  }}$ 
+<p align="center">$\color{#7c3bbf}{\textsf{ 𝐼𝑡'𝑠 𝑜𝑛 𝑚𝑦 𝑠𝑡𝑟𝑎𝑤𝑝𝑎𝑔𝑒 (𝑢𝑛𝑓𝑜𝑟𝑡𝑢𝑛𝑎𝑡𝑒𝑙𝑦 𝐼 𝑐𝑎𝑛𝑡'𝑡 𝑡𝑦𝑝𝑒 𝑖𝑡 ℎ𝑒𝑟𝑒 :𝑐)  }}$
   
 <p align="center"><img src="https://komarev.com/ghpvc/?username=sunkechi&color=8a7ba6&style=flat-square&abel=profile%20views">
