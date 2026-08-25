@@ -29,7 +29,13 @@
 <p align="center"><img src="https://komarev.com/ghpvc/?username=sunkechi&color=8a7ba6&style=flat-square&abel=profile%20views">
 
 <p align="center">
- <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=3qdgmtgces9wrpq2r6qcytgj9&redirect=true">
-    <img src="https://open.spotify.com/user/laleliomer?si=3509ef10955a4c77&cover_image=true&theme=natemoo-re&show_offline=true&background_color=322f2f&interchange=false&profanity=false&hide_remaster=false&bar_color=a06e78&bar_color_cover=false">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=laleliomer&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=laleliomer&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=685095&bar_color_cover=false">
   </a>
 </p>
+
+<p align="center"><img src="https://i.hizliresim.com/rgvuzrve.png" alt="Baslksz94_20260824151233.png" width= "550">
+
+<p align="center">$\color{#97b1d2}{\textsf{ art credits: Deanzief on X , ilewdha on X}}$ 
+
+<p align="center"><img src="https://i.hizliresim.com/jnaflres.png" alt="görsel_2026-08-25_033136671.png">
